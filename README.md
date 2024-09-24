@@ -1,1 +1,2 @@
-## STRO 200 FULL BOX أكبر ولاية في بارانا
+## STRO 200 FULL BOX
+フルボックス
