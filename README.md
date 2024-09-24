@@ -1,4 +1,4 @@
-## STRO 200
+## STRO 200 FULL BOX
 
 <!--
 **PedrinMtMira/PedrinMtMira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
