@@ -1,2 +1,2 @@
 ## STRO 200 FULL BOX
-フルボックス
+![](https://tenor.com/pt-BR/view/emojify-gif-21991922)
